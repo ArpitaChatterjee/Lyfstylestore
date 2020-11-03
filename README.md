@@ -1,1 +1,1 @@
-# Lyfstylestore
+# Lifestylestore
